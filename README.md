@@ -1,1 +1,0 @@
-# vodiknu.github.io
